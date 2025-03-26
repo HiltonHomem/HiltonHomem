@@ -9,7 +9,7 @@
 - 💼 Atualmente trabalho como **Administrador de Banco de Dados**  
 - 🌍 Buscando **clientes para produção de sites**  
 - 🎓 Estudando **Sistemas de Computação na UFF** (3º período)  
-- ⚓ Ex-aluno da **Escola Naval** – transição para o mundo tech  
+- ⚓ Ex-Aspirante da **Escola Naval** – transição para o mundo tech  
 
 ---
 
